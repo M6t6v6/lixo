@@ -1,0 +1,2 @@
+# lixo
+jogar ideia fora
